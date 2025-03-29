@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GUYAHAVI
-- 👀 I’m interested in software engineerin
+- 👀 I’m interested in software engineering
 - 🌱 I’m currently learning full stack web development
 - 💞️ I’m looking to collaborate on several web development projects
 - 📫 How to reach me +254717745891 0n whatsapp or harveyelvis24@gmail.com on email
